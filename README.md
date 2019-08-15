@@ -1,3 +1,5 @@
 # ENCODER
 
-SUNNY CHAUDHARY K.I.E.T ,Ghaziabad
+SUNNY CHAUDHARY 
+
+K.I.E.T ,Ghaziabad
